@@ -1,7 +1,10 @@
-SOBRE MIM 💞️
-- 👋 oi , meu nome e gyovanna martins
-- 👀 eu tenho 15 anos de idade
-- 🌱 signo leão
-- 💞️ namorando💞️
-- 📫 futura parisience
+SOBRE MIM🤪🎶 
+- 🤞 meu nome e Gyovanna mas as pessoas me chamam de gy   😍  
+- 😻tenho 15 anos de idade🎈
+- ♌ leão ♌         
+- 🥊muaythay🥊
+- 🎹organista
+- 🗼fuura parisience👗
+-
+-
 
